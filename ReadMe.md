@@ -38,7 +38,7 @@ I am a software developer with experience in web development. I am passionate ab
 
 ## Education
 
-### Bachelor's Degree in Computer Engineering, University of XYZ
+### Bachelor's Degree in Computer Engineering, Namik Kemal University
 *2015 - 2021*
 
 - Relevant coursework: Data Structures and Algorithms, Software Engineering, Artificial Intelligence, Computer Vision, Web dewelopment
