@@ -1,3 +1,5 @@
+<img src="https://www.hizliresim.com/7u1mvvq" alight="center"
+
 # Ibrahim Sugun
 
 Software Developer
