@@ -1,4 +1,4 @@
-<img src="https://prnt.sc/ZRTU4BIK90Yo">
+![banner](https://github.com/ibrahimsugun/ibrahimsugun/blob/main/wallpaper.png)
 
 # Ibrahim Sugun
 
