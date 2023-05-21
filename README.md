@@ -1,4 +1,4 @@
-<img src="https://www.hizliresim.com/7u1mvvq" alight="center">
+<img src="https://prnt.sc/ZRTU4BIK90Yo" alight="center">
 
 # Ibrahim Sugun
 
