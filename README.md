@@ -1,4 +1,4 @@
-<img src="https://prnt.sc/ZRTU4BIK90Yo" width="920" height="300" alight="center">
+<img src="https://prnt.sc/ZRTU4BIK90Yo">
 
 # Ibrahim Sugun
 
